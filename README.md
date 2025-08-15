@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Leonardo Sanjaya, [Website](https://ubaya.ac.id).
+* ShiftorTheOrca, [Website](https://shiftor.com). 
